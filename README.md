@@ -1,5 +1,5 @@
 ## About Me 👋
-Hi! I'm Audrey , I'm a new student on Sayna.
+Hi ! I'm Audrey , I'm a new student on Sayna.
 A passionate digital enthusiast, fascinated by the endless possibilities digital tools offer to transform ideas into innovative projects.
 
 
