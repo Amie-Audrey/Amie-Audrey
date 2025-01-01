@@ -11,7 +11,7 @@ A passionate digital enthusiast, fascinated by the endless possibilities digital
 - Creating creative projects using modern technologies.
 
   
-- 📫 How to reach me:
+ 📫 How to reach me:
 - E-mail: amieaudrey11@gmail.com
 - Linkedln: www.linkedin.com/in/amie-audrey
             AMIE Audrey Gatera Gabiline
